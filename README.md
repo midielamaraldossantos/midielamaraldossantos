@@ -1,2 +1,2 @@
 ## Hi there 👋
-Meu nome é Midiel e estou gostando do cu do alura 
+Meu nome é Midiel aprendi muita coisa com o alura 
